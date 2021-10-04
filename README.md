@@ -2,4 +2,4 @@
 - 👀 I’m interested in Python
 - 🌱 I work as the head of the 1C technical support group
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me:  89060496688 end kozhin-a@mail.ru
+- 📫 How to reach me:  89060496688 and kozhin-a@mail.ru
